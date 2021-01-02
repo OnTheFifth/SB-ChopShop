@@ -29,4 +29,4 @@ Also Gives Money Based On Class Of Vehicle
 
 Talk about coding, updates on new and streams, first look on new stuff.
 
-https://discord.gg/gDzfnm8
+https://discord.gg/dHXQsmzaEx
